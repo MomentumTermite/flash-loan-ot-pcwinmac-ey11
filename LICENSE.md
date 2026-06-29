@@ -1,4 +1,4 @@
-# 
+# Lightweight flash loan arbitrage bot extensions for Mac OS | Secure flash loan arbitrage bot extensions for PC Windows. Featuring market analysis and fast execution — optimized for maximum performance on every platform.
 
 
 
